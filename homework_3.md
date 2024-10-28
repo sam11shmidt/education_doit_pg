@@ -44,5 +44,8 @@
 
 ### 12. Не забудьте включить автовакуум)
 ![image](https://github.com/user-attachments/assets/deaf77f1-f3eb-4cb7-a22e-504062978c05)
+
 ![image](https://github.com/user-attachments/assets/cbd8be52-9f8d-4832-90e3-d5842dc9b9cc)
+
+![image](https://github.com/user-attachments/assets/f9f9fb48-66e4-47cd-8a95-e2fb32bf9389)
 
